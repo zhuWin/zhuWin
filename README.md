@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zhuWin
 - 👀 I’m interested in old software/retro gaming/minecraft/Arknights
-- 😀 This is real.I'm here! bilibili>垃圾桶里的猪瘟
+- 😀 This is real.I'm here! bilibili>terraPainteR__zw
 - 😉 I love beta software.
 - 🤔 
 <!---
