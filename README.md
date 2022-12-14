@@ -1,5 +1,5 @@
 Administrator of official Battle of Painter QQ group and @Suntrise(STR-BSOD)'s fan group
-
+Love sleeping.
 - 👋 Hi, I’m @zhuWin
 - 👀 I’m interested in old software/retro gaming/Minecraft/Arknights
 - 😀 I archived something interesting about Battle of Painter(粉刷匠大作战)
